@@ -1,10 +1,11 @@
 # Tony's gargage
 
 
-### In Tony's garage, there are many beautiful cars. They followed their owner who drove to work and back home every day. 
+### In Tony's garage, there are many beautiful cars. They belongs to their owner who drove to work and back home every day. 
 
 
 ### A sports car followed the owner home and was parked in the garage. It stretched and looked around at its new home, hey! What's that new thing next to me?
+![w500_h332_0dc94992a4664979bae2a6bd8d2d7fa1](https://user-images.githubusercontent.com/64039891/171315028-8aa34bf1-c569-45af-91d9-95a680755482.jpeg)
 
 
 ### "Hello! Who are you?" asked the sports car.
@@ -38,3 +39,4 @@
 
 
 ### In the end, the sports car was locked in the garage for a long time and was finally sold at a recycle place. on the other hand, the electric car still followed its owner to work, supermarkets, and pick up their children every day...
+<img width="1381" alt="Screen Shot 2022-05-31 at 7 21 18 PM" src="https://user-images.githubusercontent.com/64039891/171315060-1d68d87f-c8d2-45aa-860f-6c2ad7382985.png">
