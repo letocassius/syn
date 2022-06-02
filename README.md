@@ -5,8 +5,8 @@
 
 
 ### A sports car followed the owner home and was parked in the garage. It stretched and looked around at its new home, hey! What's that new thing next to me?
-![w500_h332_0dc94992a4664979bae2a6bd8d2d7fa1](https://user-images.githubusercontent.com/64039891/171315028-8aa34bf1-c569-45af-91d9-95a680755482.jpeg)
 
+![IMG_0549](https://user-images.githubusercontent.com/64039891/171680324-f20ccc53-b655-49d4-8eb8-6e75d6788127.JPG)
 
 ### "Hello! Who are you?" asked the sports car.
 
@@ -19,6 +19,7 @@
 
 ### "Although I'm not as pretty as you are, the owner likes me! drive me to the work, supermarket, I help them pick up their children every day..." The electric car whispered.
 
+![w500_h332_0dc94992a4664979bae2a6bd8d2d7fa1](https://user-images.githubusercontent.com/64039891/171315028-8aa34bf1-c569-45af-91d9-95a680755482.jpeg)
 
 ### "You go to those dirty places every day, no wonder you have a strange smell on your body!" The sports car said while twisting, making a harsh sound.
 
